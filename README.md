@@ -1,1 +1,1 @@
-# The duck at the park are free, you can take them home.
+# The ducks at the park are free, you can take them home.
